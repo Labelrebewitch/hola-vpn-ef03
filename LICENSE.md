@@ -1,4 +1,4 @@
-
+Enhance your Hola VPN experience with vip Hola VPN Addon | double-VPN + simultaneous-connections, the #1 addon. Includes double-VPN and simultaneous-connections for a safer and
 
 
 
